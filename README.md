@@ -1,3 +1,3 @@
-# isNyaku.github.uo
+# isNyaku.github.io
 
 [dzjszjz](/dzjszjz.exe)
